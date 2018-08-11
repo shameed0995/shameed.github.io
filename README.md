@@ -1,2 +1,0 @@
-# shameed.github.io
-kids
